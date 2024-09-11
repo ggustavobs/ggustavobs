@@ -1,0 +1,4 @@
+- 👋 oi, sou @ggustavobs ou gugu
+- 👀 estou interessado na área de ti, sou novo nisso!
+- 🌱 cursando Análise e Desenvolvimento de Sistemas
+- ⚡ fun fact: sou leigo
